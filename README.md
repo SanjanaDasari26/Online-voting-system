@@ -161,7 +161,7 @@ MIT License © Dasari Sanjana
 
 ## 📧 Contact
 
-Questions? Email me at [@gmail.com]
+Questions? Email me at [dasarisanjana260804@gmail.com]
 
 ---
 
